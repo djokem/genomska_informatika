@@ -1,1 +1,0 @@
-# genomska_informatika
